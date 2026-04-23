@@ -18,7 +18,7 @@ I specialize in transforming complex datasets into actionable insights using adv
 ### 📫 How to reach me:
 
 - **LinkedIn:** www.linkedin.com/in/oni-olajide-muyiwa
-- **Email:** onilajide22@gmail.com
+- **Email:** oniolajide22@gmail.com
 
 ---
 ### ⚡ Fun Fact
